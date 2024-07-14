@@ -4,5 +4,5 @@
 - ```🤟🏻``` Obsidian and Notion Freak
 - ```📫``` Reach me on gamingajitesh9@gmail.com
 - Socials:
-  - ```📱``` Instagram - @itzarul_
-  - ```📱``` Discord - @firstskylord.
+  - ```📱``` Instagram - `@itzarul_`
+  - ```📱``` Discord - `@firstskylord.`

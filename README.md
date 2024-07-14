@@ -2,4 +2,7 @@
 - ```🎒``` High School Student
 - ```🌏``` From India
 - ```🤟🏻``` Obsidian and Notion Freak
-- ```📫``` Reach me on gamingajitesh9@gmail.com or forajiteshstudies@gmail.com
+- ```📫``` Reach me on gamingajitesh9@gmail.com
+- ```📱``` Socials:
+                Instagram - @itzarul_
+                Discord - @firstskylord.
